@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @surruthisha
+- 👋 Hi, I’m @surruthisha aka shruthy
 - 👀 I’m interested in UI/UX design & Full Stack Developement 
 - 🌱 I’m currently an Undergraduate in BEng(Hons) Software Engineering @ University of Westminster, UK
 - 💞️ I’m looking to work in internships and enhanse my knowledge 
