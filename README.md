@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @surruthisha aka shruthy
 - 👀 I’m interested in UI/UX design & Full Stack Developement 
 - 🌱 I’m currently an Undergraduate in BEng(Hons) Software Engineering @ University of Westminster, UK
-- 💞️ I’m looking to work in internships and enhanse my knowledge 
-- 📫 Reach out to me via my email: surruthisha.20222357@iit.ac.lk
+- 💞️ I’m looking to work in internships and enhance my knowledge 
+- 📫 Reach out to me via my email: w1989400@my.westminster.ac.uk
 - 😄 Pronouns:SHE/HER
 - ⚡ Fun fact: I love WWE!!!
 
